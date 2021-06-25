@@ -1,0 +1,2 @@
+- Curso irado. - disse Bilbo Bolseiro.
+- Sim, muito irado. - disse Gandalf.
